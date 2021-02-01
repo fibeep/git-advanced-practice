@@ -25,6 +25,8 @@ He took a tentative step through the door and followed the stone path overgrown 
 George met the Unicorn King who granted him magic powers.
 The end.
 
+
+A better ending.
 ## Cast
 
 * Young Boy: Dan
